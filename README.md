@@ -4,7 +4,7 @@ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-912
 Student
 -------
 
-I am a student at KING MONGKUT'S UNIVERSITY OF TECHNOLOGY NORTH BANGKOK. I have experience interning in a QUEST EDTECH COMPANY LIMITED. I am fully committed and dedicated to my work. Currently still studying. with the intention of continuing to experiment and develop. Thank you for read. 🙏
+I am a student at KING MONGKUT'S UNIVERSITY OF TECHNOLOGY NORTH BANGKOK. I have experience interning in a QUEST EDTECH COMPANY LIMITED. I am fully committed and dedicated to my work. Currently still studying. with the intention of continuing to experiment and develop. Thank you. 🙏
 
 * ✉️  You can contact me at [ratchapoomandpim21@gmail.com](mailto:ratchapoomandpim21@gmail.com)
 
